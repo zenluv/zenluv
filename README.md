@@ -2,7 +2,8 @@
 
 
         “. Even though they have never called me mother. I still raised those four children.”⠀⠀⠀⠀⠀⠀⠀⠀  
- ![image_alt](https://i.postimg.cc/SQfWhQj9/Untitled96-20261021214731.png)
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀      ༘⋆  𝐙𝐞𝐧 ₍ᐢ.3.ᐢ₎⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤ🄰𝗿ᩴ𝗼𝗮꯭𝗰ᥱ᩠ ㅤ      
+ 
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀      ༘⋆  𝐙𝐞𝐧 ₍ᐢ.3.ᐢ₎⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤ🄰𝗿ᩴ𝗼𝗮꯭𝗰ᥱ᩠ ㅤ   
+ ![image_alt](https://i.postimg.cc/RVXC9ycS/Untitled96-20261021221209.png)
 ㅤ   ⠀⠀⠀⠀⠀⠀⠀ ㅤ៸៸ㅤㅤㅤ𝟒𝘁𝗲𝗲𝗻ㅤ .ೀㅤᛝྀིྀིྀ
 ⠀ 
